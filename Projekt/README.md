@@ -1,1 +1,1 @@
-Tutaj umieszczać projekt
+Tutaj umieszczać projekt.
